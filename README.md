@@ -9,3 +9,6 @@ A certain degree of predictability in criminal law is important for the overall 
 
 ### Keywords
 Sentencing, prediction, risk assessment, access to justice, legal empowerment Strafudmåling, forudsigelser, risikovurderinger, access to justice, legal empowerment
+
+# Link to paper:
+https://syddanskuni-my.sharepoint.com/:b:/g/personal/cmd_sam_sdu_dk/EVoRwum-wTBAoA1YzccuNVoBSj3F5nsuM3I3QfpCRJnwFg?e=TvUdM5
